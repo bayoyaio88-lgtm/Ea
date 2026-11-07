@@ -1,0 +1,2 @@
+# Ea
+traiding ea
